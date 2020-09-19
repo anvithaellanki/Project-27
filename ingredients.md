@@ -1,0 +1,11 @@
+INGREDIENTS:
+-1/2 cup unsalted butter, melted
+-1/3 cup granulated sugar
+-1/2 cup packed light brown sugar
+-1 large egg
+-1 teaspoon vanilla essence
+-1/4 cup unsweetened cocoa powder not dutch process
+-1/2 teaspoon baking soda
+-1/2 teaspoon salt
+-1 1/2 cups all-purpose flour
+-1 1/2 cups chocolate chips (semi-sweet or milk)
